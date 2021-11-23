@@ -13,5 +13,3 @@ fica ligado as proximas dicas
 este curso co  prof maloza é muito massa yha.
 
 Adiram ja em wwww.ditenda.com
-
-lozaasasasasa
